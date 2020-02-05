@@ -5,3 +5,6 @@ i'm a quality checker technician at Dolima.
 i have been here 2 years ago
 
 thx
+
+
+à partir d'ici je commence une autre vie.
